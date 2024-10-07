@@ -1,2 +1,2 @@
-## Eternity-A-New-Generation
+### Eternity: A New Generation
 Created by Acronix98
